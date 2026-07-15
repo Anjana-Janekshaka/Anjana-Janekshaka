@@ -47,4 +47,4 @@ I'm a passionate developer based in a vibrant tech community. I enjoy working on
 
 Email: anjanajanekshaka@gmail.com
 
-Linked In: linkedin.com/in/anjana-liyanagamage-6b16b7257
+Linked In: www.linkedin.com/in/anjana-liyanagamage-6b16b7257
